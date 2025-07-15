@@ -12,5 +12,5 @@ One of the biggest appeals of Torqueball is its viewer-friendly nature. The cons
 
 What also makes Torqueball stand out is its growing community and inclusivity. It welcomes players of various skill levels, and its adaptable rules mean it can be played recreationally or professionally. Schools, sports clubs, and even tech-focused athletic programs are starting to introduce Torqueball as a new way to get students engaged in competitive, collaborative sports.
 
-As it gains momentum globally, Torqueball is proving to be more than a trend—it's a movement. Whether you're looking to play, coach, or just cheer from the sidelines, this futuristic sport promises adrenaline, innovation, and unforgettable moments.
+As it gains momentum globally, Torqueball (https://www.torqueball.com/home/?gclid=official) is proving to be more than a trend—it's a movement. Whether you're looking to play, coach, or just cheer from the sidelines, this futuristic sport promises adrenaline, innovation, and unforgettable moments.
 
